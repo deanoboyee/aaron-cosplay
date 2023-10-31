@@ -1,2 +1,2 @@
-# aaroncosplay.github.io
+# aaroncosplay
 this is aaron in a cosplay :)
